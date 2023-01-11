@@ -1,0 +1,1 @@
+Is your last name Myrick? You might be related to this family archive. You can start keeping journals or logs, or a basic description of yourself to add to this index. You can contribute to this project if Myrick is your last name.
